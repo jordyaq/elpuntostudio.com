@@ -1,2 +1,0 @@
-# elpuntostudio.com
-# elpuntostudio.com
